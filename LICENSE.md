@@ -1,4 +1,4 @@
-
+Experience ultimate mining tycoon like never before with ultimate mining tycoon best Scripts, the #1 Script. Includes auto-sell and one-hit kill for
 
 
 
